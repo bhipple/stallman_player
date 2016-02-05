@@ -6,5 +6,7 @@ All hail his holiness St. iGNUcius.
 Be moved by his glorious haiku!
 
 cyber-liberty,
+
 let the data flow freely,
+
 all knowledge sacred.
